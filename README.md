@@ -1,2 +1,2 @@
-# pranitha
-Pranithar Designs List
+# Pranithar Figma & Social Media Designs
+# Pranithar Figma & Social Media Designs
